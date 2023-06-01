@@ -14,3 +14,5 @@ GitHub: <https://github.com/Hillowgg>
 VK: <https://vk.com/hillow>
 
 Telegram channel: <https://t.me/hillow_1tm>
+
+Presentation: https://disk.yandex.ru/d/j-wms6WfZgtc9Q
